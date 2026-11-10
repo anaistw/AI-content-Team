@@ -7,19 +7,19 @@ Meet the Team:
 - Scout Sami: Every day (+ trends on Mondays)
 Turns my Instagram saves and trending formats into short idea pages
 
-Planner Pia:	Friday	
+- Planner Pia:	Friday	
 Plans the next two weeks of filming, around my calendar and what's working
 
-Producer Rosa:	Saturday	
+- Producer Rosa:	Saturday	
 Turns the posts I approve into one-screen briefs and a shoot list
 
-Analyst Ana: Sunday	
+- Analyst Ana: Sunday	
 Updates the numbers and writes a 6-line weekly check
 
-Case-study Cleo:	1st of the month	
+- Case-study Cleo:	1st of the month	
 Turns last month into a one-page case study for job applications
 
-Builder Bea:	Wednesday	
+- Builder Bea:	Wednesday	
 Suggests small tools and automations I can build for my portfolio
 
 & Me: Always	I approve, film and post.
